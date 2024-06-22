@@ -9905,3 +9905,11 @@ zûzûka
 şûrê-kevan
 şût
 şûştin
+binçav-kirin
+qerf-kirin
+li-pey-çûn
+eşkere-kirin
+bandor-kirin
+li-hev-kirin
+rê-li-ber-xweş-kirin
+pere-kirin
